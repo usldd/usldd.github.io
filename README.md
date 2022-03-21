@@ -1,2 +1,2 @@
 # usldd.github.io
-Map of my favorite Places
+Map of My Favorite Destionations
